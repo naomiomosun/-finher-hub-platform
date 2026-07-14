@@ -37,3 +37,14 @@ Built by Naomi Omosun, a growth marketer and founder with experience building co
 ## Status
 
 Early-stage startup | Bootstrapped | Building toward a scalable fintech platform
+## Links
+
+Instagram: https://www.instagram.com/finherhub?igsh=bGFsNWtoeGduNTM0 
+TikTok: (https://www.tiktok.com/@finherhub?_r=1&_t=ZS-981MUTnqzJq)
+
+
+## Founder
+
+Founded by Naomi Omosun.
+
+LinkedIn: [[your personal LinkedIn]](https://www.linkedin.com/in/naomi-omosun-922395150?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
